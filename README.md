@@ -1,4 +1,4 @@
-### :wave: Hi there, welcome to my world! :earth_americas:
+### :wave: Hi, welcome to my world! :earth_americas:
 
 > **_Learning from my mistakes, always looking to evolve._**
 
